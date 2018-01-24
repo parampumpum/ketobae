@@ -1,2 +1,0 @@
-# ketobae
-L L L
